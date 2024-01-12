@@ -1,4 +1,4 @@
-### burning down the kitchen
+### 🔥 burning down the kitchen
 
 - 🔭 I’m currently working on ... finding a fire extinguisher
 - 🌱 I’m currently learning ... how to operate a fire extinguisher
