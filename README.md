@@ -1,4 +1,13 @@
-### Hi there 👋
+### burning down the kitchen
+
+- 🔭 I’m currently working on ... finding a fire extinguisher
+- 🌱 I’m currently learning ... how to operate a fire extinguisher
+- 👯 I’m looking to collaborate on ... the fire coming out of the microwave
+- 🤔 I’m looking for help with ... i dropped my fire extinguisher
+- 💬 Ask me about ... im tryna focus here dont ask me anything
+- 📫 How to reach me: ... on dnd
+- 😄 Pronouns: ... im/dying
+- ⚡ Fun fact: ... 
 
 <!--
 **SebastianPoncin/sebastianponcin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
