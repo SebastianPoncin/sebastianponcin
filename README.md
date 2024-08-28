@@ -1,11 +1,11 @@
-### 🔥 burning down the kitchen
+### burning down the kitchen
 
 - 🔭 I’m currently working on ... finding a fire extinguisher
 - 🌱 I’m currently learning ... how to operate a fire extinguisher
 - 👯 I’m looking to collaborate on ... the fire coming out of the microwave
 - 🤔 I’m looking for help with ... i dropped my fire extinguisher
 - 💬 Ask me about ... im tryna focus here dont ask me anything
-- 📫 How to reach me: ... on dnd
+- 📫 How to reach me: ... *cough cough* call 911 please
 - 😄 Pronouns: ... im/dying
 - ⚡ Fun fact: ... 
 
