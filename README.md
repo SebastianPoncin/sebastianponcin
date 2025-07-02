@@ -7,7 +7,7 @@
 - 💬 Ask me about ... im tryna focus here dont ask me anything
 - 📫 How to reach me: ... *cough, wheeze* call 911 please
 - 😄 Pronouns: ... im/dying
-- ⚡ Fun fact: ... *silence*
+- ⚡ Fun fact: ... 
 
 <!--
 **SebastianPoncin/sebastianponcin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
